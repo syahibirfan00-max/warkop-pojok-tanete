@@ -1,1 +1,0 @@
-# warkop-pojok-tanete
